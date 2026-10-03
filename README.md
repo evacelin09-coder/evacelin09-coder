@@ -67,6 +67,9 @@ Hi there, I'm Evangeline Celin M 👋
 - 🏅 Bachelor of Engineering (B.Tec I.T) — St. Joseph's College Of Engineering
 🚀 Foundational Track: Currently learning Java and developing my communication skills 
 
-🏆 Certifications
+📬 Connect with me
+   Reach out to me anytime via email evacelin09@gmail.com.
+   via linkedin : www.linkedin.com/in/evangeline-celin-m-a21687439
+
 
 
